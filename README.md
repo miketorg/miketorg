@@ -1,0 +1,1 @@
+- Howdy!!  I have been in the IT industry for 15 years.  I have mainly work the managment side of IT.  I have always had a desire to code, but never had the to do it.  So here I am!!!   
